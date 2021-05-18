@@ -1,0 +1,3 @@
+No dia 08 de Maio de 2021 recebi a feliz notícia de ter sido aprovado para participar do treinamento da Afya Labs. O treinamento consiste em 5 semanas intensas, com trilhas que vão desde metodologias ágeis à desenvolvimento.
+
+Tenho achado o treinamento incrível, uma oportunidade única de aprednizagem, de revisão conhecimentos e desenvolvimento de novas habilidades! Obrigado Afya Labs e Gama Academy por proporcionar essa experiência tão rica.
